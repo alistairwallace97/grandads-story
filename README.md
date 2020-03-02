@@ -15,3 +15,9 @@ I'm going to start storing the recodings on here as well.
 #### 27/01/2020
 
 We talked about his life after the RAF, his time at the school in Birkhampstead. Then his time working at the Royal Agricultural College in Cirencester, where he lived at first, him and Nana getting married in Seaham, their honey moon in Blackpool, the first cottage they rented in Ciren, then the second place.
+
+
+#### 02/03/2020
+
+A pretty shitty recording. Just listing back to it now and you can hardly hear what Grandad's saying. Talked about the bit just before they went up the north, and the their time up the north, why they decided to leave and Grandad's jobs while he was up there.
+
